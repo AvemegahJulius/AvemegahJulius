@@ -2,7 +2,7 @@
 - 👀 I’m interested in data and insights i love to make the numbers look like words and make sense
 - 🌱 I’m currently currently changing careers from  a sales person to Data analyst hoping to dive deep into product management
 - 💞️ I’m looking to collaborate on projets for fun or for a fee ...
-- 📫 How to reach me linkedin
+- 📫 How to reach me https//www.avemegajulius.online
 - 😄 Pronouns:
 - ⚡ Fun fact: i love numbers and food with cool internet 
 
